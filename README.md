@@ -5,7 +5,6 @@
 <br>
 
 - 🤔 &nbsp; Explorando e aprimorando-me com novas tecnologias e skills, sempre focando no progresso.
-- 🎓 &nbsp; Estudando **SISTEMAS DE INFORMAÇÃO** na <a href="https://www.unopar.com.br/unidade/teresinapi-i1051619u/">UNOPAR</a>.
 
 
 🚀 &nbsp; *focus and constancy*
